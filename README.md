@@ -1,0 +1,1 @@
+# estructura-dato-parcialcorte-1-2024-b
